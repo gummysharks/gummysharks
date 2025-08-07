@@ -7,7 +7,7 @@
 -ㅤㅤㅤ chat how do i do this. ☆
 </p>
 <p align="center">
-⏜ ㅤㅤㅤㅤc+h is always ok unless stated otherwise 
+- ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
     so don't hesitate to sit with me ㅤㅤㅤ⏜☆⏜
 </p>
