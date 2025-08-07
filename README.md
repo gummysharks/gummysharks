@@ -14,6 +14,7 @@
 </div>
 -ㅤㅤㅤ ☆
 </p>
+ <a href="https://rentry.co/T1GERSHARK">main rentry</a>ㅤㅤㅤ <a href="https://rentry.co/FIRE-SPIRIT">secondary rentry</a>
 <p align="center">
 - ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
