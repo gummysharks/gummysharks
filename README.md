@@ -2,7 +2,7 @@
 
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20★ᬊ%20&style=flat-plastic&color=A1A0D5)
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20★%20ᬊ%20&style=plastic&color=A1A0D5)
 
 </p>
 <p align="center">
