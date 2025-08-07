@@ -26,7 +26,7 @@
 
 </p>
 <p align="center">
-ㅤㅤㅤ don't copy any of my skins, they take me a lot of time and i really like my style.
+ㅤㅤㅤ don't copy any of my skins, please, they take me a lot of time and i really like my style.
 </p>
 
 <div align="center">
