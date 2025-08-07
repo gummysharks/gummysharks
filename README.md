@@ -1,15 +1,23 @@
+
+
 <div id="header" align="center">
 
 ![](https://komarev.com/ghpvc/?username=gummysharks&label=%20★ᬊ%20&style=for-the-badge&color=A1A0D5)
+
+</p>
+<p align="center">
+  ㅤㅤㅤㅤ𝙙𝙤 𝙮𝙤𝙪 𝙬𝙞𝙨𝙝 𝙩𝙤 𝙥𝙖𝙨𝙨 𝙩𝙝𝙚 𝙩𝙧𝙞𝙖𝙡𝙨?
+</p>
+
 <div id="header" align="center">
   <img src="https://files.catbox.moe/dgnkv9.gif" width="1000"/>
 </div>
--ㅤㅤㅤ chat how do i do this. ☆
+-ㅤㅤㅤ ☆
 </p>
 <p align="center">
 - ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
-    so don't hesitate to sit with me ㅤㅤㅤ⏜☆⏜
+    so don't hesitate to sit with me ㅤㅤㅤ⏜⏜
 </p>
 <div align="center">
 
