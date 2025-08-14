@@ -10,15 +10,15 @@
 </p>
 
 <div id="header" align="center">
-  <img src="https://files.catbox.moe/waob1p.gif" width="1000"/>
+  <img src="https://files.catbox.moe/ofqji0.gif" width="1000"/>
 </div>
 -ㅤㅤㅤ ☆
 </p>
  <a href="https://rentry.co/T1GERSHARK">main rentry</a>ㅤㅤㅤ <a href="https://rentry.co/FIRE-SPIRIT">secondary rentry</a>
 <p align="center">
-- ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
+ ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
-    so don't hesitate to sit with me ㅤㅤㅤ⏜⏜
+    so don't hesitate to sit with me ㅤㅤㅤ⏜
 </p>
 <div align="center">
 
