@@ -6,11 +6,11 @@
 
 </p>
 <p align="center">
-  ㅤㅤchat the gif is malfunctioning 💔
+  ㅤ"𝑻𝒉𝒊𝒔 𝒘𝒊𝒍𝒍 𝒉𝒆𝒍𝒑 𝒌𝒆𝒆𝒑 𝒕𝒉𝒆 𝒌𝒊𝒏𝒈𝒅𝒐𝒎 𝒔𝒂𝒇𝒆."
 </p>
 
 <div id="header" align="center">
-  <img src="https://files.catbox.moe/dgnkv9.gif" width="1000"/>
+  <img src="https://files.catbox.moe/waob1p.gif" width="1000"/>
 </div>
 -ㅤㅤㅤ ☆
 </p>
