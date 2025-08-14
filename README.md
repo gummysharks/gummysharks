@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">
-  ㅤㅤ"𝙙𝙤 𝙮𝙤𝙪 𝙬𝙞𝙨𝙝 𝙩𝙤 𝙥𝙖𝙨𝙨 𝙩𝙝𝙚 𝙩𝙧𝙞𝙖𝙡𝙨?"
+  ㅤㅤchat the gif is malfunctioning 💔
 </p>
 
 <div id="header" align="center">
