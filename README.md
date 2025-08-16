@@ -12,6 +12,8 @@
 <div id="header" align="center">
   <img src="https://files.catbox.moe/ofqji0.gif" width="1000"/>
 </div>
+WHY DO MY GIFS KEEP GLITCHING.
+
 -ㅤㅤㅤ ☆
 </p>
  <a href="https://rentry.co/T1GERSHARK">main rentry</a>ㅤㅤㅤ <a href="https://rentry.co/FIRE-SPIRIT">secondary rentry</a>
