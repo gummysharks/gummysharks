@@ -18,7 +18,7 @@ WHY DO MY GIFS KEEP GLITCHING.
 </p>
  <a href="https://rentry.co/T1GERSHARK">main rentry</a>ㅤㅤㅤ <a href="https://rentry.co/FIRE-SPIRIT">fire spirit rentry</a>
  
- <a href="https://rentry.co/BURNT-CHEESE-C">burnt cheese rentry</a>
+ <a href="https://rentry.co/BBURNT-CHEESE">burnt cheese rentry</a>
 <p align="center">
  ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
