@@ -2,7 +2,7 @@
 
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20oathkeeper%20&style=flat&color=A1A0D5)
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20oathkeeper%20&style=flat&color=7294A2)
 
 </p>
 <p align="center">
@@ -14,7 +14,7 @@
   <img src="https://files.catbox.moe/qc4qfc.gif" width=1000" />
 </div>
 
-this is my babygirl ok
+> this is my babygirl ok
 ㅤ 
 </p>
  <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>
