@@ -11,9 +11,8 @@
 </p>
 
 <div id="header" align="center">
-  <img src="https://files.catbox.moe/nbdx1i.gif" />
+  <img src="https://files.catbox.moe/qc4qfc.gif" width=1000" />
 </div>
-this is awful
 
 -ㅤㅤㅤ ☆
 </p>
