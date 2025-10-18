@@ -6,13 +6,14 @@
 
 </p>
 <p align="center">
-  ㅤ"𝑻𝒉𝒊𝒔 𝒘𝒊𝒍𝒍 𝒉𝒆𝒍𝒑 𝒌𝒆𝒆𝒑 𝒕𝒉𝒆 𝒌𝒊𝒏𝒈𝒅𝒐𝒎 𝒔𝒂𝒇𝒆."
+  ㅤ綺麗な夜だから
+    哀しい夜だから
 </p>
 
 <div id="header" align="center">
-  <img src="https://files.catbox.moe/ofqji0.gif" width="1000"/>
+  <img src="https://files.catbox.moe/nbdx1i.gif" />
 </div>
-WHY DO MY GIFS KEEP GLITCHING.
+this is awful
 
 -ㅤㅤㅤ ☆
 </p>
