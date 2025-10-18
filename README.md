@@ -14,11 +14,10 @@
   <img src="https://files.catbox.moe/qc4qfc.gif" width=1000" />
 </div>
 
--ㅤㅤㅤ ☆
+ignore the glitched gif.
+-ㅤㅤㅤ 
 </p>
- <a href="https://rentry.co/T1GERSHARK">main rentry</a>ㅤㅤㅤ <a href="https://rentry.co/FIRE-SPIRIT">fire spirit rentry</a>
- 
- <a href="https://rentry.co/BBURNT-CHEESE">burnt cheese rentry</a>
+ <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>
 <p align="center">
  ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
@@ -26,16 +25,13 @@
 </p>
 <div align="center">
 
-<img src="https://files.catbox.moe/zvwqv7.png" width="1000"/>
+<img src="https://files.catbox.moe/drsw20.gif" width="300"/> there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
 
-</p>
-<p align="center">
-ㅤㅤㅤ don't copy any of my skins, please, they take me a lot of time and i really like my style.
-</p>
+If i suddenly shut off around you it's not because you did something that upsets me, it's simply me recharging or evading overstimulation.
 
 <div align="center">
 
-<img src="https://files.catbox.moe/l90k1k.png" width="1000"/>
+<img src="https://files.catbox.moe/0kbjub.png" />
 
 </p>
 <p align="center">
