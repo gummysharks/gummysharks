@@ -2,7 +2,7 @@
 
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20⚠%20&style=plastic&color=A1A0D5)
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20oathkeeper%20&style=flat&color=A1A0D5)
 
 </p>
 <p align="center">
@@ -14,8 +14,8 @@
   <img src="https://files.catbox.moe/qc4qfc.gif" width=1000" />
 </div>
 
-ignore the glitched gif.
--ㅤㅤㅤ 
+this is my babygirl ok
+ㅤ 
 </p>
  <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>
 <p align="center">
@@ -25,7 +25,7 @@ ignore the glitched gif.
 </p>
 <div align="center">
 
-<img src="https://files.catbox.moe/drsw20.gif" width="300"/> there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
+![](https://files.catbox.moe/drsw20.gif) there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
 
 If i suddenly shut off around you it's not because you did something that upsets me, it's simply me recharging or evading overstimulation.
 
@@ -35,16 +35,21 @@ If i suddenly shut off around you it's not because you did something that upsets
 
 </p>
 <p align="center">
-ㅤㅤㅤ whisper if you want to interact with me, 90% of the time I'll be offtab or afk
+ㅤi spend 80% of my time offtab/afk, so if you wish to interact with me in any way, just whisper me.
 </p>
 <p align"center">
-ㅤㅤㅤ i respond VERY slowly and I get distracted very easily, so if your message goes unanswered for a long time i either didn't see it or I'm currently busy
+ㅤhowever, i respond very slowly since i get distracted very easily. if your message goes unanswered for a long period of time, I'm probably busy or i didn't see it.
 </p>
 
 <div align="center">
 
-<img src="https://files.catbox.moe/fb5oq3.png" width="1000"/>
+<img src="https://files.catbox.moe/pvdvvx.png" width="300"/>
 
 </p>
 <p align="center">
-☆ ㅤㅤㅤeng/esp
+☆ ㅤㅤ
+</p>
+
+i experiment with my style a lot so if one of my skins ever look similar to yours, do tell.
+
+moreover, please don't copy or inspo my skins. they take me a lot of time and i enjoy having an unique style.
