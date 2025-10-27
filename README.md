@@ -25,7 +25,7 @@
 </p>
 <div align="center">
 
-![](https://files.catbox.moe/drsw20.gif) there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
+<img alt="alt_text" width="100px" src="https://files.catbox.moe/drsw20.gif" />there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
 
 If i suddenly shut off around you it's not because you did something that upsets me, it's simply me recharging or evading overstimulation.
 
@@ -43,7 +43,7 @@ If i suddenly shut off around you it's not because you did something that upsets
 
 <div align="center">
 
-<img src="https://files.catbox.moe/pvdvvx.png" width="300"/>
+<img src="https://files.catbox.moe/pvdvvx.png" width="150px"/>
 
 </p>
 <p align="center">
