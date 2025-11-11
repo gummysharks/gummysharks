@@ -14,7 +14,7 @@
   <img src="https://files.catbox.moe/qc4qfc.gif" width=1000" />
 </div>
 
-> this is my babygirl ok
+> can my gifs stop glitching istg
 ㅤ 
 </p>
  <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>
