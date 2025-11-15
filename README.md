@@ -17,7 +17,7 @@
 > can my gifs stop glitching istg
 ㅤ 
 </p>
- <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>
+ <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>ㅤ<a href="https://pronouns.cc/deepwater-sharks">prns.cc</a>
 <p align="center">
  ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
