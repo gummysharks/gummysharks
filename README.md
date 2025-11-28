@@ -17,7 +17,13 @@
 > this is so compressed it's not even funny
 ㅤ 
 </p>
- <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>ㅤ<a href="https://pronouns.cc/deepwater-sharks">prns.cc</a>
+my (steadily growing) rentry hoard:
+
+ <a href="https://rentry.co/T1GERSHARK">MAIN</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">fsc</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">burnt cheese</a>ㅤ
+</p>
+more sites:
+
+<a href="https://pronouns.cc/deepwater-sharks">my prns.cc</a>
 <p align="center">
  ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
   <p align="center">
