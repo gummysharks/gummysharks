@@ -2,7 +2,7 @@
 
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20oathkeeper%20&style=flat&color=7294A2)
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20twisted-wonderland%20&style=flat&color=89A696)
 
 </p>
 <p align="center">
@@ -11,10 +11,10 @@
 </p>
 
 <div id="header" align="center">
-  <img src="https://files.catbox.moe/qc4qfc.gif" width=1000" />
+  <img src="https://files.catbox.moe/5o2zln.gif" width=1000" />
 </div>
 
-> can my gifs stop glitching istg
+> MY GRAPHIC WON'T LOAD.
 ㅤ 
 </p>
  <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>ㅤ<a href="https://pronouns.cc/deepwater-sharks">prns.cc</a>
