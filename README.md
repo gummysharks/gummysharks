@@ -11,10 +11,10 @@
 </p>
 
 <div id="header" align="center">
-  <img src="https://files.catbox.moe/5o2zln.gif" width=1000" />
+  <img src="https://files.catbox.moe/8xj5es.gif" width=1000" />
 </div>
 
-> MY GRAPHIC WON'T LOAD.
+> this is so compressed it's not even funny
 ㅤ 
 </p>
  <a href="https://rentry.co/T1GERSHARK">MAIN rentry</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">FSC rentry</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">BURNT CHEESE rentry</a>ㅤ<a href="https://pronouns.cc/deepwater-sharks">prns.cc</a>
