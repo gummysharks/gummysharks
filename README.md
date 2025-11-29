@@ -2,12 +2,11 @@
 
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20twisted-wonderland%20&style=flat&color=89A696)
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20our%20twisted%20wonderland%20&style=flat&color=89A696)
 
 </p>
 <p align="center">
-  ㅤ綺麗な夜だから
-    哀しい夜だから
+  <img alt="alt_text" src="https://files.catbox.moe/ime9cy.png"/>
 </p>
 
 <div id="header" align="center">
@@ -31,13 +30,13 @@ more sites:
 </p>
 <div align="center">
 
-<img alt="alt_text" width="120px" src="https://files.catbox.moe/drsw20.gif" />there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
-
+<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
+<img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/>
 If i suddenly shut off around you it's not because you did something that upsets me, it's simply me recharging or evading overstimulation.
 
 <div align="center">
 
-<img src="https://files.catbox.moe/0kbjub.png" />
+<img src="https://files.catbox.moe/193meg.png" />
 
 </p>
 <p align="center">
@@ -49,7 +48,7 @@ If i suddenly shut off around you it's not because you did something that upsets
 
 <div align="center">
 
-<img src="https://files.catbox.moe/pvdvvx.png" width="150px"/>
+<img src="https://files.catbox.moe/5suoi0.png" width="180px" align="left"/>
 
 </p>
 <p align="center">
