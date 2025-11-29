@@ -24,15 +24,18 @@ more sites:
 
 <a href="https://pronouns.cc/deepwater-sharks">my prns.cc</a>
 <p align="center">
- ㅤㅤㅤㅤ𝙘+h is always ok unless stated otherwise 
+ ㅤㅤㅤㅤi like sitting with people, so c+h is encouraged!! (UNLESS, i have any sort of dni in my name that applies to you).
   <p align="center">
-    so don't hesitate to sit with me ㅤㅤㅤ⏜
+    so don't hesitate to sit with me ㅤㅤㅤ🦈
 </p>
 <div align="center">
 
-<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>there will be times where I'll go non/semiverbal because im either overwhelmed, or just at a very low social battery.
-<img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/>
-If i suddenly shut off around you it's not because you did something that upsets me, it's simply me recharging or evading overstimulation.
+
+<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>you'll find me all over the map since I'm always wherever my friends are at. but if I'm alone you'll most likely find me around the hoyoverse area, or more recently, the twst area!
+
+<img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/> i struggle with reading the room and understanding social cues, so i might be very slow and oblivious at times. please, if i ever ask you to, explain to me whatever it is I'm confused with.
+
+please be patient with me.
 
 <div align="center">
 
@@ -40,10 +43,10 @@ If i suddenly shut off around you it's not because you did something that upsets
 
 </p>
 <p align="center">
-ㅤi spend 80% of my time offtab/afk, so if you wish to interact with me in any way, just whisper me.
+ㅤi'm almost always offtab or afk, so if you wish to interact, please whisper me.
 </p>
 <p align"center">
-ㅤhowever, i respond very slowly since i get distracted very easily. if your message goes unanswered for a long period of time, I'm probably busy or i didn't see it.
+ㅤhowever, i'm very forgetful and get distracted extremely easy. this causes me to be very slow at responding, so if your message goes unanswered for a long period of time, i'm probably busy or just didn't see it. in that case, just send another message, I'll respond eventually!
 </p>
 
 <div align="center">
