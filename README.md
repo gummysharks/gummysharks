@@ -31,9 +31,9 @@ more sites:
 <div align="center">
 
 
-<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>you'll find me all over the map since I'm always wherever my friends are at. but if I'm alone you'll most likely find me around the hoyoverse area, or more recently, the twst area!
+<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>you'll find me all over the map since I'm always wherever my friends are at. but the places i frequent the most are the hoyoverse area, and i (very rarely) pass by the twst area sometimes^^.
 
-<img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/> i struggle with reading the room and understanding social cues, so i might be very slow and oblivious at times. please, if i ever ask you to, explain to me whatever it is I'm confused with.
+<img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/> i struggle with reading the room and understanding social cues, so i might be very slow and !!!oblivious!!! at times. please, if i ever ask you to, explain to me whatever it is I'm confused with.
 
 please be patient with me.
 
