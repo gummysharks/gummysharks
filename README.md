@@ -18,7 +18,7 @@
 </p>
 my (steadily growing) rentry hoard:
 
- <a href="https://rentry.co/T1GERSHARK">MAIN</a>ㅤ<a href="https://rentry.co/FIRE-SPIRIT">fsc</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">burnt cheese</a>ㅤ
+ <a href="https://rentry.co/T1GERSHARK">MAIN</a>ㅤ<a href="https://rentry.co/carniivorous">jade</a> ㅤ<a href="https://rentry.co/FIRE-SPIRIT">fsc</a>ㅤ <a href="https://rentry.co/BBURNT-CHEESE">burnt cheese</a>ㅤ
 </p>
 more sites:
 
