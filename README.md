@@ -2,18 +2,18 @@
 
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20our%20twisted%20wonderland%20&style=flat&color=89A696)
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20dearest%20audience%20&style=flat&color=840E14)
 
 </p>
 <p align="center">
-  <img alt="alt_text" src="https://files.catbox.moe/ime9cy.png"/>
+  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260523_233427.png"/>
 </p>
 
 <div id="header" align="center">
-  <img src="https://files.catbox.moe/8xj5es.gif" width=1000" />
+  <img src="https://file.garden/aGhejZrEhk3uCjIn/153%20sin%20t%C3%ADtulo_20260523230645.png" width=1000" />
 </div>
 
-> this is so compressed it's not even funny
+> ★
 ㅤ 
 </p>
 my (steadily growing) rentry hoard:
@@ -37,9 +37,7 @@ more sites:
 
 please be patient with me.
 
-<div align="center">
-
-<img src="https://files.catbox.moe/193meg.png" />
+--
 
 </p>
 <p align="center">
@@ -61,3 +59,8 @@ please be patient with me.
 i experiment with my style a lot so if one of my skins ever look similar to yours, do tell.
 
 moreover, please don't copy or inspo my skins. they take me a lot of time and i enjoy having an unique style.
+<div align="center">
+
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260523_233450.png" />
+
+</p>
