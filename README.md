@@ -10,7 +10,7 @@
 </p>
 
 <div id="header" align="center">
-  <img src="https://file.garden/aGhejZrEhk3uCjIn/153%20sin%20t%C3%ADtulo_20260523230645.png" width=1000" />
+  <img src="https://file.garden/aGhejZrEhk3uCjIn/153%20sin%20t%C3%ADtulo_20260524213226.png" width=1000" />
 </div>
 
 > ★
