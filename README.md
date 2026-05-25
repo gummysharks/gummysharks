@@ -7,10 +7,9 @@
 </p>
 <p align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260523_233427.png"/>
-</p>
-
 <p align=center>
 $\color{rgb(135, 14, 1)}{{H}}\color{rgb(206, 2, 2)}{{ow}}$ $\color{rgb(199, 46, 49)}{{c}}\color{rgb(221, 69, 31)}{{a}}\color{rgb(219, 104, 33)}{{n}}$ $\color{rgb(219, 123, 33)}{{h}}\color{rgb(219, 140, 35)}{{e}}$ $\color{rgb(223, 143, 38)}{{t}}\color{rgb(236, 151, 40)}{{e}}\color{rgb(218, 151, 107)}{{l}}\color{rgb(214, 152, 123)}{{l}}$ $\color{rgb(214, 164, 141)}{{h}}\color{rgb()}{{e}}\color{rgb(211, 148, 80)}{{r}}\color{rgb(205, 137, 64)}{{?}}$
+$\color{rgb(73, 128, 79)}{{(}}\color{rgb(69, 113, 91)}{{S}}\color{rgb(68, 110, 95)}{{h}}\color{rgb(67, 102, 99)}{{e}}$ $\color{rgb(60, 98, 100)}{{s}}\color{rgb(53, 96, 100)}{{t}}\color{rgb(62, 87, 90)}{{o}}\color{rgb(73, 79, 79)}{{l}}\color{rgb(79, 72, 74)}{{e}}$ $\color{rgb(93, 53, 57)}{{h}}\color{rgb(92, 55, 58)}{{i}}\color{rgb(83, 53, 51)}{{s}}$ $\color{rgb(73, 57, 39)}{{h}}\color{rgb(70, 56, 35)}{{e}}\color{rgb(100, 43, 38)}{{a}}\color{rgb(111, 33, 38)}{{r}}\color{rgb(129, 28, 31)}{{t}}\color{rgb(167, 12, 12)}{{...}}\color{rgb()}{{)}}$
 </p>
 
 <div id="header" align="center">
