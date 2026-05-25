@@ -8,6 +8,8 @@
 <p align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260523_233427.png"/>
 </p>
+$\color{rgb(165, 41, 75)}{\textsf{this is a test yo}}$
+</p>
 
 <div id="header" align="center">
   <img src="https://file.garden/aGhejZrEhk3uCjIn/153%20sin%20t%C3%ADtulo_20260524213226.png" width=1000" />
