@@ -10,7 +10,7 @@
 </p>
 
 <p align=center>
-$\color{rgb(225, 225, 225)}{{im throwing HANDS with this code}}$
+$\color{rgb(135, 14, 1)}{{H}}\color{rgb(206, 2, 2)}{{ow}}$ $\color{rgb(199, 46, 49)}{{c}}\color{rgb(221, 69, 31)}{{a}}\color{rgb(219, 104, 33)}{{n}}$ $\color{rgb(219, 123, 33)}{{h}}\color{rgb(219, 140, 35)}{{e}}$ $\color{rgb()}{{t}}\color{rgb()}{{e}}\color{rgb()}{{l}}\color{rgb()}{{l}}$ $\color{rgb()}{{h}}\color{rgb()}{{e}}\color{rgb()}{{r}}\color{rgb()}{{?}}$
 </p>
 
 <div id="header" align="center">
