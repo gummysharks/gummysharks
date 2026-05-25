@@ -8,7 +8,7 @@
 <p align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260523_233427.png"/>
 </p>
-$\color{rgb(165, 41, 75)}{\textsf{t}}
+$\color{rgb(22, 27, 39)}{\textsf{t}}\color{rgb(37, 36, 51)}{\textsf{e}}\color{rgb(rgba(49, 43, 60))}{\textsf{s}}\color{rgb(58, 46, 64)}{\textsf{t}}$ $\color{rgb(70, 47, 64)}{\textsf{t}}\color{rgb(86, 49, 64)}{\textsf{e}}$ $\color{rgb(163, 57, 64)}{\textsf{s}}\color{rgb((201, 61, 64)}{\textsf{t}}\color{rgb(217, 65, 65)}{\textsf{t}}\color{rgb(217, 77, 65)}{\textsf{e}}\color{rgb(217, 95, 66)}{\textsf{s}}$ $\color{rgb(217, 111, 66)}{\textsf{t}}\color{rgb(220, 124, 81)}{\textsf{t}}\color{rgb(221, 125, 84)}{\textsf{e}}\color{rgb(222, 129, 92)}{\textsf{s}}$ $\color{rgb(224, 133, 100)}{\textsf{t}}\color{rgb(228, 142, 115)}{\textsf{t}}\color{rgb(231, 150, 129)}{\textsf{s}}$
 </p>
 
 <div id="header" align="center">
