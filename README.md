@@ -8,7 +8,7 @@
 <p align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260523_233427.png"/>
 </p>
-$\color{rgb(165, 41, 75)}{\textsf{this is a test yo}}$
+$\color{rgb(165, 41, 75)}{\textsf{t}}
 </p>
 
 <div id="header" align="center">
