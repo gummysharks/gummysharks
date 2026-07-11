@@ -2,28 +2,34 @@
 
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20dearest%20audience%20&color=FFFFFF&style=plastic)
-
-</p>
-<p align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260711_142522.png"/>
+  </p>
+
+      
+  ![](https://komarev.com/ghpvc/?username=gummysharks&label=%20dearest%20audience%20&color=FFFFFF&style=plastic)
+  
 
   
 <p align=center>
 im revamping this pls
 
-<div align="center"> <img src="https://file.garden/aGhejZrEhk3uCjIn/ezgif-6c8459eec75eea73.gif" width=1000"> </div>
-
+<div align="center"> <img src="https://file.garden/aGhejZrEhk3uCjIn/ezgif-6c8459eec75eea73.gif" width=1000"> 
+  
 > ★
-ㅤ 
-</p>
-my (steadily growing) rentry hoard:
 
- <a href="https://rentry.co/T1GERSHARK">MAIN</a>　<a href="https://rentry.co/carniivorous">jade</a> 　<a href="https://rentry.co/FIRE-SPIRIT">fsc</a>　ㅤ۫<a href="https://rentry.co/BBURNT-CHEESE">burnt cheese</a>ㅤ
+<table>
+  <tr>
+    <th>
+Rentries that I'll probably never finish:
+ <a href="https://rentry.co/T1GERSHARK">MAIN RENTRY</a>　</p>
+      <a href="https://rentry.co/carniivorous">jade</a> 　<a href="https://rentry.co/FIRE-SPIRIT">fsc</a>　ㅤ۫<a href="https://rentry.co/BBURNT-CHEESE">burnt cheese</a>ㅤ
 </p>
-more sites:
+Other sites:
 
 <a href="https://pronouns.cc/deepwater-sharks">my prns.cc</a>
+</th>
+  </tr>
+  </table>
 <p align="center">
  ㅤㅤㅤㅤi like sitting with people, so c+h is encouraged!! (UNLESS, i have any sort of dni in my name that applies to you).
   <p align="center">
