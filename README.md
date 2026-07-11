@@ -4,18 +4,15 @@
 
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260711_142522.png"/>
   </p>
-
-      
-  ![](https://komarev.com/ghpvc/?username=gummysharks&label=%20dearest%20audience%20&color=FFFFFF&style=plastic)
-  
-
   
 <p align=center>
-im revamping this pls
+<sub>revamping</sub>
 
 <div align="center"> <img src="https://file.garden/aGhejZrEhk3uCjIn/ezgif-6c8459eec75eea73.gif" width=1000"> 
   
 > ★
+
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20order%20&color=000000&style=flat)
 
 <table>
   <tr>
