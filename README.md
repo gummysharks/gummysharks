@@ -6,9 +6,13 @@
   </p>
   
 <p align=center>
-<sub>revamping</sub>
+<sub>${\text{\color{#8F455E} spend \color{#A63E6C} the \color{#C64579} night}}$</sub> </p>
+
+<sub>${\text{\color{#C97179} but i \color{#C88881} swear,}}$</sub>
 
 <div align="center"> <img src="https://file.garden/aGhejZrEhk3uCjIn/ezgif-6c8459eec75eea73.gif" width=1000"> 
+
+<sub>${\text{\color{#C59A79} i might \color{#D2C090} change my \color{#E5D9BD} mind}}$</sub> </p>
   
 > ★
 
