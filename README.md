@@ -21,7 +21,7 @@
 <table>
   <tr>
     <th>
-Rentries that I'll probably never finish:
+Rentries that I'll probably never finish: </p>
  <a href="https://rentry.co/T1GERSHARK">MAIN RENTRY</a>　</p>
       <a href="https://rentry.co/carniivorous">jade</a> 　<a href="https://rentry.co/FIRE-SPIRIT">fsc</a>　ㅤ۫<a href="https://rentry.co/BBURNT-CHEESE">burnt cheese</a>ㅤ
 </p>
