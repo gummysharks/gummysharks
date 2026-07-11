@@ -32,27 +32,23 @@ Other sites:
   </tr>
   </table>
 <p align="center">
- ㅤㅤㅤㅤi like sitting with people, so c+h is encouraged!! (UNLESS, i have any sort of dni in my name that applies to you).
-  <p align="center">
-    so don't hesitate to sit with me ㅤㅤㅤ🦈
-</p>
+I love the company of others so (if you see me alone) c+h is encouraged. That is, unless i have any DNI in my name that applies to you.</p>
+  
 <div align="center">
 
 
-<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>you'll find me all over the map since I'm always wherever my friends are at. but the places i frequent the most are the hoyoverse area, and i (very rarely) pass by the twst area sometimes^^.
+<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>You'll find me all over the map since I'm always wherever my friends are. However, the spots i frequent are usually the hoyoverse and roblox areas. But if I get curious i tend to visit the crk and twst areas.
 
-<img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/> i struggle with reading the room and understanding social cues, so i might be very slow and !!!oblivious!!! at times. please, if i ever ask you to, explain to me whatever it is I'm confused with.
-
-please be patient with me.
+<img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/> I struggle with social cues and I'm a slow person in general so please be patient with me.
 
 --
 
 </p>
 <p align="center">
-ㅤi'm almost always offtab or afk, so if you wish to interact, please whisper me.
+The offtaber ever, I'm never 100% on the pt tab unless I'm talking with someone. So please whisper me if you want to interact with me.
 </p>
 <p align"center">
-ㅤhowever, i'm very forgetful and get distracted extremely easy. this causes me to be very slow at responding, so if your message goes unanswered for a long period of time, i'm probably busy or just didn't see it. in that case, just send another message, I'll respond eventually!
+But keep in mind I'm a horrendously forgetful person, and i get distracted easily. So if your message goes unanswered for a long period of time, I'm probably just busy or I didn't see it. Just send another message and I'll respond eventually.
 </p>
 
 <div align="center">
@@ -64,9 +60,9 @@ please be patient with me.
 ☆ ㅤㅤ
 </p>
 
-i experiment with my style a lot so if one of my skins ever look similar to yours, do tell.
+I experiment with my style an awful lot so if one of my skins ever look similar to yours, please tell me.
 
-moreover, please don't copy or inspo my skins. they take me a lot of time and i enjoy having an unique style.
+Moreover, please don't copy or inspo any of my skins. they take me a lot of time and i enjoy having an unique style.
 <div align="center">
 
 <img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260711_142536.png" />
