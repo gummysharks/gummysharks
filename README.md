@@ -27,7 +27,7 @@ Rentries that I'll probably never finish: </p>
 </p>
 Other sites:
 
-<a href="https://pronouns.cc/deepwater-sharks">my prns.cc</a>
+<a href="https://pronouns.cc/deepwater-sharks">my (OUTDATED) prns.cc</a>
 </th>
   </tr>
   </table>
