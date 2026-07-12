@@ -16,7 +16,7 @@
   
 > ★
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20order%20&color=000000&style=flat)
+![](https://komarev.com/ghpvc/?username=gummysharks&label=%20...a%20new%20order?%20&color=000000&style=flat)
 
 <table>
   <tr>
@@ -27,7 +27,7 @@ Rentries that I'll probably never finish: </p>
 </p>
 Other sites:
 
-<a href="https://pronouns.cc/deepwater-sharks">my (OUTDATED) prns.cc</a>
+<a href="https://pronouns.cc/deepwater-sharks">my prns.cc</a>
 </th>
   </tr>
   </table>
