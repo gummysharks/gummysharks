@@ -34,7 +34,7 @@ Other sites:
 <p align="center">
 <sub>${\text{\color{#C59A79} Shark, \color{#D2C090} Phai or \color{#E5D9BD} Jade}}$</sub> </p>
 
-<sub>${\text{\color{#C64579} Genderfluid(?), They/he/it \color{#C88881} preference. \color{#C64579} you can use She/her ONLY IF you're \color{#C88881} close}}$</sub> </p>
+<sub>${\text{\color{#C64579} Genderfluid(?), They/he/it \color{#C88881} preference.}}$</sub> </p>
   
 I love the company of others so (if you see me alone) c+h is encouraged. That is, unless i have any DNI in my name that applies to you.</p>
   
