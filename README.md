@@ -1,4 +1,5 @@
-
+<p align=center>
+<sub>${\text{\color{#C97179} hi im on artfight, draw my children 🥰:}}$ https://artfight.net/~gummyshark-s</sub> </p>
 
 <div id="header" align="center">
 
