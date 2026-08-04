@@ -49,7 +49,7 @@ I love the company of others so (if you see me alone) c+h is encouraged. That is
 <div align="center">
 
 
-<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>You'll find me all over the map since I'm always wherever my friends are. However, the spots i frequent are usually the hoyoverse and roblox areas. But if I get curious i tend to visit the crk and twst areas.
+<img alt="alt_text" width="70px" src="https://files.catbox.moe/e20hfy.png" align="left"/>You'll find me all over the map since I'm always wherever my friends are. However, the spots i frequent are usually the hoyoverse and roblox areas. But if I get curious i tend to visit the crk, mcyt and twst areas.
 
 <img alt="alt_text" width="120px" src="https://files.catbox.moe/d6xglb.png" align="right"/> I struggle with social cues and I'm a slow person in general so please be patient with me.
 
