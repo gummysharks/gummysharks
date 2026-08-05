@@ -1,6 +1,7 @@
 <div align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_202953.png" width="2000"/>
-
+  <div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=DotGothic16&pause=1500&color=9EBCD6&width=435&lines=will+i+see+you+again%2C+will+i+find+you+again%3F;hope+that+this+won't+end...............%5E_%5E" alt="Typing SVG" /></a>
   
 <p align=center>
 <div align="center">
