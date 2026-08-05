@@ -9,9 +9,9 @@
 <img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=s.o.s%20me!&extraCount=7891&color=C0E4FA&labelColor=FFF1E3">
 
 ## <sub>${\text{\color{#4B6FD8} Shark 　\color{#5994E8} ou Pha\color{#5CA9E9}i/Phainon, \color{#9DCBF4} Jade}}$</sub>
-<sub>${\text{\color{#D1CBCA}19,　　 \color{DFCFCC}　　Genderqueer　 \color{#F9EBDA}They/he/\color{#EBD7CF}it \color{#BBBEF1}preferenc\color{#9FA1E9}ee}}$</sub></p>
+<sub>${\text{\color{#D1CBCA}19,　　 \color{#D1CBCA}　　Genderqueer　 \color{#D1CBCA}They/he/\color{#EBD7CF}it \color{#BBBEF1}preferenc\color{#9FA1E9}e}}$</sub></p>
 <p align=center>
-${\text{\color{#5CA9E9}Phainon \color{DFCFCC}and \color{9DCBF4}Jade Leech \color{DFCFCC} IRL}}$</p>
+${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \color{#DFCFCC} IRL}}$</p>
   
 > ★
 
