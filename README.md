@@ -5,7 +5,7 @@
   
 <p align=center>
 <div align="center">
-<img src="https://file.garden/aGhejZrEhk3uCjIn/193%20sin%20t%C3%ADtulo_20260804214533.png" width="1000"/> 
+<img src="https://file.garden/aGhejZrEhk3uCjIn/193%20sin%20t%C3%ADtulo_20260804224803.png" width="1000"/> 
 <img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=s.o.s%20me!&extraCount=7891&color=C0E4FA&labelColor=FFF1E3">
 
 ## <sub>${\text{\color{#4B6FD8} Shark 　\color{#5994E8} ou Pha\color{#5CA9E9}i/Phainon, \color{#9DCBF4} Jade}}$</sub>
