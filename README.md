@@ -11,7 +11,7 @@
   
 > ★
 
-![](https://komarev.com/ghpvc/?username=gummysharks&label=%20...a%20new%20order?%20&color=000000&style=flat)
+<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=s.o.s%20me!&extraCount=7891&color=C0E4FA&labelColor=FFF1E3">
 
 <table>
   <tr> 
