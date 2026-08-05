@@ -1,17 +1,10 @@
-<p align=center>
-<sub>${\text{\color{#C97179} hi im on artfight, draw my children 🥰:}}$ https://artfight.net/~gummyshark-s</sub> </p>
+<div align="center">
+  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/div%20phai.webp" width="2000"/>
 
-<div id="header" align="center">
-
-  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260711_142522.png"/>
-  </p>
   
 <p align=center>
-<sub>${\text{\color{#8F455E} spend \color{#A63E6C} the \color{#C64579} night}}$</sub> </p>
-
-<sub>${\text{\color{#C97179} but i \color{#C88881} swear,}}$</sub>
-
-<div align="center"> <img src="https://file.garden/aGhejZrEhk3uCjIn/ezgif-6c8459eec75eea73.gif" width=1000"> 
+<div align="center">
+<img src="https://file.garden/aGhejZrEhk3uCjIn/PHAINON.webp" width="1000"/> 
 
 <sub>${\text{\color{#C59A79} i might \color{#D2C090} change my \color{#E5D9BD} mind}}$</sub> </p>
   
