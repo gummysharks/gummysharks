@@ -7,7 +7,8 @@
 <div align="center">
 <img src="https://file.garden/aGhejZrEhk3uCjIn/192%20sin%20t%C3%ADtulo_20260804185905.png" width="1000"/> 
 
-<sub>${\text{\color{#C59A79} i might \color{#D2C090} change my \color{#E5D9BD} mind}}$</sub> </p>
+## <sub>**Shark**　 ou Phai/Phainon, Jade</sub>
+<sub>19　　 Genderqueer　 They/he/it preference</sub></p>
   
 > ★
 
