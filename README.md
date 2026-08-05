@@ -6,13 +6,14 @@
 <p align=center>
 <div align="center">
 <img src="https://file.garden/aGhejZrEhk3uCjIn/193%20sin%20t%C3%ADtulo_20260804214533.png" width="1000"/> 
+<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=s.o.s%20me!&extraCount=7891&color=C0E4FA&labelColor=FFF1E3">
 
-### <sub>**Shark**　 ou Phai/Phainon, Jade</sub>
-<sub>19　　 Genderqueer　 They/he/it preference</sub></p>
+## <sub>${\text{\color{#4B6FD8} Shark 　\color{#5994E8} ou Pha\color{#5CA9E9}i/Phainon, \color{#9DCBF4} Jade}}$</sub>
+<sub>${\text{\color{#D1CBCA}19,　　 \color{DFCFCC}　　Genderqueer　 \color{#F9EBDA}They/he/\color{#EBD7CF}it \color{#BBBEF1}preferenc\color{#9FA1E9}ee}}$</sub></p>
+<p align=center>
+${\text{\color{#5CA9E9}Phainon \color{DFCFCC}and \color{9DCBF4}Jade Leech \color{DFCFCC} IRL}}$</p>
   
 > ★
-
-<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=s.o.s%20me!&extraCount=7891&color=C0E4FA&labelColor=FFF1E3">
 
 <table>
   <tr> 
@@ -35,9 +36,6 @@ Other sites:
   </tr>
   </table>
 <p align="center">
-<sub>${\text{\color{#C59A79} Shark, \color{#D2C090} Phai or \color{#E5D9BD} Jade}}$</sub> </p>
-
-<sub>${\text{\color{#C64579} Genderfluid(?), They/he/it \color{#C88881} preference.}}$</sub> </p>
   
 I love the company of others so (if you see me alone) c+h is encouraged. That is, unless i have any DNI in my name that applies to you.</p>
   
