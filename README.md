@@ -7,7 +7,7 @@
 <div align="center">
 <img src="https://file.garden/aGhejZrEhk3uCjIn/193%20sin%20t%C3%ADtulo_20260804214533.png" width="1000"/> 
 
-## <sub>**Shark**　 ou Phai/Phainon, Jade</sub>
+### <sub>**Shark**　 ou Phai/Phainon, Jade</sub>
 <sub>19　　 Genderqueer　 They/he/it preference</sub></p>
   
 > ★
