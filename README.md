@@ -69,7 +69,7 @@ I experiment with my style an awful lot so if one of my skins ever look similar 
 
 Moreover, please don't copy or inspo any of my skins. they take me a lot of time and i enjoy having an unique style.
 
-</p>
+<br>
 
 
 <div align="center">
