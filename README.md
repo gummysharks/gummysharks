@@ -13,7 +13,7 @@
 <p align=center>
 ${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \color{#DFCFCC} IRL}}$</p>
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203156.png" width="700" align="center">
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203156.png" width="400" align="center">
 </p>
 
 <table>
@@ -53,13 +53,12 @@ I love the company of others so (if you see me alone) c+h is encouraged. That is
 <p align="center">
 The offtaber ever, I'm never 100% on the pt tab unless I'm talking with someone. So please whisper me if you want to interact with me.
 </p>
-<p align"center">
-But keep in mind I'm a horrendously forgetful person, and i get distracted easily. So if your message goes unanswered for a long period of time, I'm probably just busy or I didn't see it. Just send another message and I'll respond eventually.
-</p>
-
 <div align="center">
 
 <img src="https://files.catbox.moe/5suoi0.png" width="180px" align="left"/>
+
+<p align"center">
+But keep in mind I'm a horrendously forgetful person, and i get distracted easily. So if your message goes unanswered for a long period of time, I'm probably just busy or I didn't see it. Just send another message and I'll respond eventually.
 
 </p>
 <p align="center">
@@ -69,8 +68,12 @@ But keep in mind I'm a horrendously forgetful person, and i get distracted easil
 I experiment with my style an awful lot so if one of my skins ever look similar to yours, please tell me.
 
 Moreover, please don't copy or inspo any of my skins. they take me a lot of time and i enjoy having an unique style.
+
+</p>
+
+
 <div align="center">
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203049.png" />
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203049.png" width="500"/>
 
 </p>
