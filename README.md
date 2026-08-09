@@ -1,7 +1,7 @@
 <div align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_202953.png" width="2000"/>
   <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=DotGothic16&pause=1500&color=9EBCD6&width=435&lines=will+i+see+you+again%2C+will+i+find+you+again%3F;hope+that+this+won't+end...............%5E_%5E" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&pause=1000&color=7895F7&background=FEFFE500&center=true&width=435&lines=i'm+having+visions+of+you;but+then+i+understand%2C;the+friend+i'm+dreaming+of+is+far+away;and+doesn't+feel+my+love%2C;but+i+do;i+do" alt="Typing SVG" /></a>
   
 <p align=center>
 <div align="center">
