@@ -12,8 +12,9 @@
 <sub>${\text{\color{#D1CBCA}19,　　 \color{#D1CBCA}　　Genderqueer　 \color{#D1CBCA}They/he/\color{#EBD7CF}it \color{#BBBEF1}preferenc\color{#9FA1E9}e}}$</sub></p>
 <p align=center>
 ${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \color{#DFCFCC} IRL}}$</p>
-  
-> ★
+
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203156.png" width="700" align="center">
+</p>
 
 <table>
   <tr> 
@@ -70,6 +71,6 @@ I experiment with my style an awful lot so if one of my skins ever look similar 
 Moreover, please don't copy or inspo any of my skins. they take me a lot of time and i enjoy having an unique style.
 <div align="center">
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260711_142536.png" />
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203049.png" />
 
 </p>
