@@ -19,18 +19,8 @@ ${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \col
 <table>
   <tr> 
     <th>
-      MATCHING RENTRYAYAYAYAY:
+      other sites! (wip)
 </p>
-  <a href="https://rentry.co/secretsintern">.co/secretsintern</a>
-    </th>
-    </tr>
-  <tr>
-    <th>
-Rentries that I'll probably never finish: </p>
- <a href="https://rentry.co/T1GERSHARK">MAIN RENTRY</a>　</p>
-      <a href="https://rentry.co/carniivorous">jade</a> 　<a href="https://rentry.co/FIRE-SPIRIT">fsc</a>　ㅤ۫<a href="https://rentry.co/BBURNT-CHEESE">burnt cheese</a>ㅤ
-</p>
-Other sites:
 
 <a href="https://pronouns.cc/deepwater-sharks">my prns.cc</a>
 </th>
