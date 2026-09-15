@@ -1,11 +1,11 @@
 <div align="center">
-  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_202953.png" width="2000"/>
+  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154833.png" width="250px"/>
   <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&pause=1000&color=7895F7&background=FEFFE500&center=true&width=435&lines=i'm+having+visions+of+you;but+then+i+understand%2C;the+friend+i'm+dreaming+of+is+far+away;and+doesn't+feel+my+love%2C;but+i+do;i+do" alt="Typing SVG" /></a>
   
 <p align=center>
 <div align="center">
-<img src="https://file.garden/aGhejZrEhk3uCjIn/193%20sin%20t%C3%ADtulo_20260804224803.png" width="1000"/> 
+<img src="https://file.garden/aGhejZrEhk3uCjIn/216%20sin%20t%C3%ADtulo_20260915153646.png" width="1000"/> 
 <img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=s.o.s%20me!&extraCount=7891&color=C0E4FA&labelColor=FFF1E3">
 
 ## <sub>${\text{\color{#4B6FD8} Shark 　\color{#5994E8} ou Pha\color{#5CA9E9}i/Phainon, \color{#9DCBF4} Jade}}$</sub>
@@ -13,7 +13,7 @@
 <p align=center>
 ${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \color{#DFCFCC} IRL}}$</p>
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203156.png" width="400" align="center">
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154833.png" width="250px" align="center">
 </p>
 
 <table>
@@ -64,6 +64,6 @@ Moreover, please don't copy or inspo any of my skins. they take me a lot of time
 
 <div align="center">
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260804_203049.png" width="500"/>
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154900.png" width="250px"/>
 
 </p>
