@@ -1,19 +1,21 @@
 <div align="center">
-  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154833.png" width="250px"/>
+  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154833.png" width="300px"/>
   <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&pause=1000&color=7895F7&background=FEFFE500&center=true&width=435&lines=i'm+having+visions+of+you;but+then+i+understand%2C;the+friend+i'm+dreaming+of+is+far+away;and+doesn't+feel+my+love%2C;but+i+do;i+do" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&duration=4500&pause=1000&color=BDCDDC&center=true&width=510&lines=i+watch+it+all+fall+apart+with+you+right+by+my+side" alt="Typing SVG" /></a>
   
 <p align=center>
 <div align="center">
 <img src="https://file.garden/aGhejZrEhk3uCjIn/216%20sin%20t%C3%ADtulo_20260915153646.png" width="1000"/> 
-<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=s.o.s%20me!&extraCount=7891&color=C0E4FA&labelColor=FFF1E3">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&duration=4500&pause=1000&color=CF75BE&center=true&width=510&lines=I+choose+you+everytime" alt="Typing SVG" /></a> <br>
+  
+<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=who's%20we%20bro&extraCount=7891&color=ACB9DC&labelColor=E4DBDC">
 
 ## <sub>${\text{\color{#4B6FD8} Shark 　\color{#5994E8} ou Pha\color{#5CA9E9}i/Phainon, \color{#9DCBF4} Jade}}$</sub>
 <sub>${\text{\color{#D1CBCA}19,　　 \color{#D1CBCA}　　Genderqueer　 \color{#D1CBCA}They/he/\color{#EBD7CF}it \color{#BBBEF1}preferenc\color{#9FA1E9}e}}$</sub></p>
 <p align=center>
 ${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \color{#DFCFCC} IRL}}$</p>
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154833.png" width="250px" align="center">
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154833.png" width="300px" align="center">
 </p>
 
 <table>
@@ -64,6 +66,6 @@ Moreover, please don't copy or inspo any of my skins. they take me a lot of time
 
 <div align="center">
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154900.png" width="250px"/>
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154900.png" width="300px"/>
 
 </p>
