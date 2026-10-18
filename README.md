@@ -1,5 +1,5 @@
 <div align="center">
-  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_214000.png" width="300px"/>
+  <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_214000.png" width="400px"/>
   <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&duration=4500&pause=1000&color=BDCDDC&center=true&width=510&lines=i+watch+it+all+fall+apart+with+you+right+by+my+side" alt="Typing SVG" /></a>
   
@@ -15,7 +15,7 @@
 <p align=center>
 ${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \color{#DFCFCC} IRL}}$</p>
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_215612.png" width="400px" height="250px" align="center">
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_215612.png" width="900px" height="300px" align="center">
 </p>
 
 <table>
@@ -66,6 +66,6 @@ Moreover, please don't copy or inspo any of my skins. they take me a lot of time
 
 <div align="center">
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_214000.png" width="300px"/>
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_214000.png" width="400px"/>
 
 </p>
