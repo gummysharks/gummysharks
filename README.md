@@ -9,7 +9,7 @@
 <br>
 <br>
   
-<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=0_o&extraCount=7891&color=DB4031&labelColor=000000" width="100px">
+<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=0_o&extraCount=7891&color=DB4031&labelColor=000000">
 
 ## <sub>${\text{\color{#4B6FD8} Shark 　\color{#5994E8} ou Pha\color{#5CA9E9}i/Phainon, \color{#9DCBF4} Jade}}$</sub>
 <sub>${\text{\color{#D1CBCA}19,　　 \color{#D1CBCA}　　Genderqueer　 \color{#D1CBCA}They/he/\color{#EBD7CF}it \color{#BBBEF1}preferenc\color{#9FA1E9}e}}$</sub></p>
