@@ -1,14 +1,15 @@
 <div align="center">
   <img alt="this is a wip" src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_214000.png" width="400px"/>
   <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&duration=4500&pause=1000&color=BDCDDC&center=true&width=510&lines=i+watch+it+all+fall+apart+with+you+right+by+my+side" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Special+Elite&pause=1000&color=FF1B00&center=true&width=500&lines=let's+dance+all+night!!!+%3E_%3C;dance+alone+in+this+corpse+party+2nite+O_o" alt="Typing SVG" /></a>
   
 <p align=center>
 <div align="center">
-<img src="https://file.garden/aGhejZrEhk3uCjIn/219%20sin%20t%C3%ADtulo2_20261016203240.png" width="1000"/> 
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DotGothic16&duration=4500&pause=1000&color=CF75BE&center=true&width=510&lines=I+choose+you+everytime" alt="Typing SVG" /></a> <br>
+<img src="https://file.garden/aGhejZrEhk3uCjIn/219%20sin%20t%C3%ADtulo2_20261016203240.png" width="900"/> 
+<br>
+<br>
   
-<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=who's%20we%20bro&extraCount=7891&color=ACB9DC&labelColor=E4DBDC">
+<img src="https://hits.sh/github.com/gummysharks.svg?style=flat-plastic&label=0_o&extraCount=7891&color=DB4031&labelColor=000000" width="100px">
 
 ## <sub>${\text{\color{#4B6FD8} Shark 　\color{#5994E8} ou Pha\color{#5CA9E9}i/Phainon, \color{#9DCBF4} Jade}}$</sub>
 <sub>${\text{\color{#D1CBCA}19,　　 \color{#D1CBCA}　　Genderqueer　 \color{#D1CBCA}They/he/\color{#EBD7CF}it \color{#BBBEF1}preferenc\color{#9FA1E9}e}}$</sub></p>
