@@ -15,7 +15,7 @@
 <p align=center>
 ${\text{\color{#5CA9E9}Phainon \color{#DFCFCC}and \color{#9DCBF4}Jade Leech \color{#DFCFCC} IRL}}$</p>
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154833.png" width="300px" align="center">
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_215612.png" width="400px" height="250px" align="center">
 </p>
 
 <table>
@@ -66,6 +66,6 @@ Moreover, please don't copy or inspo any of my skins. they take me a lot of time
 
 <div align="center">
 
-<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20260915_154900.png" width="300px"/>
+<img src="https://file.garden/aGhejZrEhk3uCjIn/IMG_20261017_214000.png" width="300px"/>
 
 </p>
